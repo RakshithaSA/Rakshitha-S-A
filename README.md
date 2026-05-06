@@ -36,7 +36,7 @@ microcontrollers, sensors and wireless control.
 
 ## 📫 Connect With Me
 
-- 📧 rakshithasa212@gmail.com
+- 📧 rakshithasa45@gmail.com
 - 💼 LinkedIn: linkedin.com/in/rakshithasa
 - 📍 Bangalore, Karnataka
 
